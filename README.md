@@ -28,7 +28,7 @@ Currently immersed in the captivating realms of AI and machine learning, I aspir
 
 🤝 Let's Connect:
 
-📧 Feel free to reach out for collaborations or discussions at [faizanalibukhrii@example.com].
+📧 Feel free to reach out for collaborations or discussions at [faizanalibukhrii@gmail.com].
 
 🌟 Excited about the endless possibilities that technology offers, I'm on a journey of continuous learning and growth. 
 Join me as I navigate the ever-evolving landscape of data science and AI!
